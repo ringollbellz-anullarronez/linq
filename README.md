@@ -1,0 +1,2 @@
+# linq
+gjugpi rrodel do
